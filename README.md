@@ -1,0 +1,2 @@
+- Etechnology #8276's member
+- Mechanic's leader
